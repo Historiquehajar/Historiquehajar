@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Historiquehajar
+- 👋 Hi, I’m @hajar azzimadam
 - 👀 I’m interested in coding and writing...
 - 🌱 I’m currently learning coding and more english because its not my language... but I love it.♡
 
